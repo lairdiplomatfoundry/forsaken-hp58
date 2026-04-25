@@ -1,4 +1,4 @@
-
+smart Script for forsaken is the best forsaken Script, featuring speed and auto-heal. Safe and powerful for all your needs.
 
 
 
